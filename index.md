@@ -17,3 +17,5 @@ Sora's primary partners are Donald and Goofy and have been on a journey to searc
 * optimistic
 
 >The heart may be weak. And sometimes it may even give in. But I've learned that deep down, there's a light that never goes out!
+
+<img src="https://vignette.wikia.nocookie.net/kingdomhearts/images/f/f7/Sora_%28KHIIFM%29_KHIIHD.png/revision/latest?cb=20200528044258"/>
