@@ -7,3 +7,11 @@ Sora is a Keyblade wielder from the Destiny Islands where he, along with his chi
 Sora is the original persona of his own Heartless and Roxas, the source of Xion's memories, and the carrier of Ventus's heart.
 
 Sora's primary partners are Donald and Goofy and have been on a journey to search for King Mickey throughout the franchise of Kingdom Hearts games.
+
+## Soras Character Traits
+
+* brave
+* heroic
+* loyal
+* upbeat
+* optimistic
