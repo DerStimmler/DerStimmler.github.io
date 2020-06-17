@@ -15,3 +15,5 @@ Sora's primary partners are Donald and Goofy and have been on a journey to searc
 * loyal
 * upbeat
 * optimistic
+
+>The heart may be weak. And sometimes it may even give in. But I've learned that deep down, there's a light that never goes out!
